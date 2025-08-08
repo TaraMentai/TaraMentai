@@ -14,7 +14,7 @@ Stop looking at the code, there is nothing here💢
 - 🛠️ I build things, break things, and improve a little every day.  
 - 🎥 I also create content on YouTube as a Vtuber clipper.  
 - 🗣️ I speak 3 languages (so far).
-- 😄 Pronouns: He/Him
+- 😄 Pronouns: Omaera!!!
 <!--
 Stop looking at the code, there is nothing here💢
 -->
